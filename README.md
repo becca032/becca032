@@ -7,4 +7,5 @@ Aluna do ensino médio da:E.E.Professor Doutor Laerte Ramos de Carvalho
 ### Voce entrar em contato comigo📧
 00001102642733sp@al.educacao.sp.gov.br
 
-https://media.tenor.com/_iheVyzHcTgAAAAM/bandeira-do-s%C3%A3o-paulo-s%C3%A3o-paulo-fc.gif
+![image](https://github.com/becca032/becca032/assets/170945420/46ff5d65-c53a-46b6-86f9-26ceb514382e)
+
